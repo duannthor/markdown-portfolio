@@ -1,1 +1,7 @@
-Replace this with a list of your favorite things.
+- Reeses Peanut Butter Cups
+- Dry aged ribeye
+- Soup dumplings
+- Tonkotsu ramen
+  - egg noodles
+  - chashu
+- JoJo references
